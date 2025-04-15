@@ -2,7 +2,7 @@
 - 👀 I’m interested in Mobile Application Devolopment
 - 🌱 I’m currently learning Firebase
 - 💞️ I’m looking to collaborate on Github
-- 📫 How to reach me umairkhanYT009@gmail.com | +923492628394 WhatsApp
+- 📫 How to reach me umairkhanYT009@gmail.com | +92349-2628394 WhatsApp
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
